@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @reidwitt36
+- Hey there! My name is Reid
 - My Hobbies include photography, learning Chinese, and fitness
 - Reach me @ reidwitt36@icloud.com
 
